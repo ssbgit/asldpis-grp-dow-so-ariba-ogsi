@@ -1,1 +1,0 @@
-# asldpis-grp-dow-so-ariba-ogsi
